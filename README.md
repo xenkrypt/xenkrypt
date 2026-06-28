@@ -1,4 +1,4 @@
-changes itself are the only constant things.
+change itself is the only constant.
 
 
 # Socials:
